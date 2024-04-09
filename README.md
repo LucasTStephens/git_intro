@@ -1,1 +1,2 @@
 Lucas Stephens
+stephluc@oregonstate.edu
